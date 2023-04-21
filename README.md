@@ -1,6 +1,6 @@
 # Link
 Hi there! I would love to help you more with your essays. 
-Are you willing so that we work outside the essaypro app. It would be cheaper for you and I would welcome referrals.
+Are you willing so that we work outside the essaypro app. This would be really easy with your assignments as they are demanding.
 My email is 
 epaphrusyuko123@gmail.com
 
